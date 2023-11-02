@@ -5,3 +5,6 @@
 #Reddit: StarGazers_Internati
 #SnapChat: StarGazers Internati
 #SnapChat Ai Chat Bot: Internati-i
+#Gmail: stargazersinternati.eth@gmail.com
+#CashApp: $StarGazersInternati
+#CashApp: $targazersinternati
